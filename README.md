@@ -1,5 +1,5 @@
 ## 🍅
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Silkscreen&size=30&pause=1000&color=F7F7F7&random=false&width=435&lines=saturnday+on+creeddddddddddddd)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Bubbles&size=30&pause=1000&color=F7F7F7&random=false&width=435&lines=saturnday+on+creeddddddddddddd)](https://git.io/typing-svg)
 
 
 <!--
